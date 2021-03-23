@@ -1,1 +1,1 @@
-# ndaniei.github.io/xd/
+# https://ndaniei.github.io/xd/
